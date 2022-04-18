@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+You can follow me in instagram [Shifin_kadambot](http://instagram.com/shifin_kadambot?utm_source=qr).
